@@ -1,3 +1,3 @@
 Ala ma kota
 kot ma ale
-cos
+cos tam jest
